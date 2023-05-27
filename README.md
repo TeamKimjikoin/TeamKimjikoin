@@ -1,4 +1,4 @@
-## 👋 Hi, I’m AGORA, Welcome to my GitHub Profile
+## 👋 Hi, I’m KIMIKOIN, Welcome to my GitHub Profile
 ![Profile Views](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https://github.com/TeamAgora/&title=Profile%20Views)
 # My Social Profiles
 <p align="center">
