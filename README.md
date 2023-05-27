@@ -31,7 +31,7 @@
  -->    <img align="middle" src="https://profile-counter.glitch.me/kannadigaXD/count.svg" />
 </p>
 
-[<img src="https://github.com/AnonymousR1025/AnonymousR1025/blob/master/resources/hr.gif"/>](https://github.com/kannadigaXD)
+[<img src="https://github.com/AnonymousR1025/AnonymousR1025/blob/master/resources/hr.gif"/>](https://github.com/TeamAGORA)
 
 
 
