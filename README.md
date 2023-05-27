@@ -25,7 +25,7 @@
 ![MR AGORA's's GitHub stats](https://github-readme-stats.vercel.app/api?username=TeamKimjikoin&show_icons=true&theme=synthwave) &nbsp;
 ![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=kannadigaXD&layout=compact&show_icons=true&theme=synthwave)
 
-<h1> <img src="https://github.com/TeamKimjikoin/TeamKimjikoin/blob/master/resources/codes.webp" width="70px"> 𝗛𝗘𝗬 𝗜𝗧𝗦 𝗠𝗘 𝗞𝗔𝗡𝗡𝗔𝗗𝗜𝗚𝗔 𝗫𝗗 </h1>
+<h1> <img src="https://github.com/TeamKimjikoin/TeamKimjikoin/blob/master/resources/codes.webp" width="70px"> TEAM KIMJIKOIN </h1>
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
  -->    <img align="middle" src="https://profile-counter.glitch.me/kannadigaXD/count.svg" />
