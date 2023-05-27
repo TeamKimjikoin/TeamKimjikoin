@@ -9,7 +9,7 @@
 <img src="https://github-stats-alpha.vercel.app/api/?username=TeamKimjikoin&cc=000&tc=00ff00&ic=fff000&bc=fff" align="center">
 </p>
 
-## <p align="center"> ನನ್ನ ಗಿಟ್ಹಬ್ ಗೆ ನಿಮಗೆ ಹೃತ್ಪೂರ್ವಕ ಸ್ವಾಗತ </a></p> 
+## <p align="center"> WE HAVE DIRTY MIND BUT NOT DIRTY HEART </a></p> 
 
 <p align='Middle'><a href='https://t.me/mr_agora'><img src='https://te.legra.ph/file/38b22567b74e39ef499b2.jpg' width='750"'></a></p>
 
