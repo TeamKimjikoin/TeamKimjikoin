@@ -11,7 +11,7 @@
 
 ## <p align="center"> ನನ್ನ ಗಿಟ್ಹಬ್ ಗೆ ನಿಮಗೆ ಹೃತ್ಪೂರ್ವಕ ಸ್ವಾಗತ </a></p> 
 
-<p align='Middle'><a href='https://t.me/mr_agora'><img src='https://te.legra.ph/file/fec879e15f72200a34a67.jpg' width='750"'></a></p>
+<p align='Middle'><a href='https://t.me/mr_agora'><img src='https://te.legra.ph/file/3dac055199126f5d5effa.jpg' width='750"'></a></p>
 
 <p align="center">
   <img src="https://readme-typing-svg.herokuapp.com?color=F38777&width=490&lines=ಕರ್ನಾಟಕದ+ಮೊಟ್ಟ+ಮೊದಲ+ಟೆಲಿಗ್ರಾಂ+ರೋಬೋಟ್+ಮೇಕರ್%E2%9C%8C">
