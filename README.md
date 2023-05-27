@@ -14,7 +14,7 @@
 <p align='Middle'><a href='https://t.me/mr_agora'><img src='https://te.legra.ph/file/38b22567b74e39ef499b2.jpg' width='750"'></a></p>
 
 <p align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?color=F38777&width=2500&lines=YES+WERE+FIGHTERS+&+WE+LEFT+FIGHTING+BUT+NPT+FORGOTTEN%E2%9C%8C">
+  <img src="https://readme-typing-svg.herokuapp.com?color=F38777&width=2500&lines=YES+WERE+FIGHTERS+WE+LEFT+FIGHTING+BUT+NPT+FORGOTTEN%E2%9C%8C">
 </p> 
 
 <p align="center">
