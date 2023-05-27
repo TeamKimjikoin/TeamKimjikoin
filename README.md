@@ -18,7 +18,7 @@
 </p> 
 
 <p align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?color=F555247&width=890&lines=+𝗧𝗛𝗘+𝗙𝗜𝗥𝗦𝗧+𝗕𝗢𝗧+𝗖𝗥𝗘𝗔𝗧𝗢𝗥+𝗔𝗡𝗗+𝗗𝗘𝗩𝗘𝗟𝗢𝗣𝗘𝗥+𝗙𝗥𝗢𝗠+𝗞𝗔𝗥𝗡𝗔𝗧𝗔𝗞𝗔%E2%9C%8C">
+  <img src="https://readme-typing-svg.herokuapp.com?color=F555247&width=890&lines=WE+ARE+NOOB+IN+CODINGS+BUT+WE+ARE+YOUR+DAD+IN+KANGING+CODES%E2%9C%8C">
 </p> 
 
 ## 𝗚𝗜𝗧𝗛𝗨𝗕 𝗦𝗧𝗔𝗧𝗦
